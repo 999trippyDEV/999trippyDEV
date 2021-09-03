@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @999trippyDEV
+- 👀 I’m interested in everything ;)
+-💞️ I’m looking to collaborate on game devlopping
+- 📫 How to reach me = discord: *!!TRIPPY!!*
